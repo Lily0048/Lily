@@ -4,9 +4,9 @@ My name is Lily and I am excited do something new and start learning code!  I wo
 ---
 **Things I enjoy to do in my freetime:**
 
-*Play with my two dogs
+* Play with my two dogs
 
-*Paint
+* Paint
 
-*Go to concerts
+* Go to concerts
 
